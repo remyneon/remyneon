@@ -12,4 +12,4 @@ Aspiring cypherpunk
 
 Discord remyneon#8179
 
-Do these things really get read? Surely no-one cares but if you made it this far then you're pretty cool 😎
+Do these things really get read? Hi if you made it this far!
