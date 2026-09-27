@@ -9,5 +9,3 @@ Into information retrieval, archival, osint, infosec, malware analysis, vulnerab
 Aspiring cypherpunk
 
 Discord remyneon#8179
-
-Do these things really get read? Hi if you made it this far!
