@@ -1,7 +1,5 @@
 Programmer since 1996, qualified programmer since 2001, future security researcher 🤞🤞 
 
-My university taught Java as the main language 😭
-
 I hoard vintage BBS & general 90s scene txt files, zines, random bits of malware and crimeware, skid stuff, leaks, onion archives
 
 Diving into security to restart a career path!
