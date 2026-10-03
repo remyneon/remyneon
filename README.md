@@ -1,4 +1,4 @@
-Programmer since 1996, qualified programmer since 2001, future security researcher 🤞🤞 
+Programmer since 1996, qualified programmer since 2005, future security researcher 🤞🤞 
 
 I hoard vintage BBS & general 90s scene txt files, zines, random bits of malware and crimeware, skid stuff, leaks, onion archives
 
