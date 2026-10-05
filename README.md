@@ -8,4 +8,4 @@ Into information retrieval, archival, osint, infosec, malware analysis, vulnerab
 
 Aspiring cypherpunk
 
-Discord remyneon#8179
+HMU on discord remyneon#8179 - feel free to send me files to include in my repos :)
